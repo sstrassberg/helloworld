@@ -6,4 +6,4 @@ Hi, I'm Shane Strassberg. I'm a Designer at *US Digital Service*.
 
 - **Past Companies and Organizations:**
 - **Hobbies:**
-- **Favorite Website:** []()
+- **Favorite Website:** [https://cnn.com](https://cnn.com)
