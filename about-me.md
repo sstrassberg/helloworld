@@ -2,7 +2,7 @@
 
 ![Picture of me]()
 
-Hi, I'm Charlene Bernard. I'm a ________ at *__________*.
+Hi, I'm Shane Strassberg. I'm a Designer at *US Digital Service*.
 
 - **Past Companies and Organizations:**
 - **Hobbies:**
